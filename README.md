@@ -1,0 +1,2 @@
+# Tugas-FORM1A.SCX
+Project Kasir, INTAN SARI, 160250501031
